@@ -1,12 +1,11 @@
+老K纸牌是一款纸牌接龙游戏,有趣经典的单人纸牌游戏，
 
-Rabbit loves to jump is a super smash classic adventure and legendary 
+简洁的设计和大号纸牌实现轻松愉悦的体验，
 
-side-scrolling arcade platformer. + addictive, thrilling and challenging jungle journey adven.
+老K纸牌需要使用技巧结合耐心来完成，
 
-collect coins and diamonds, swim through dangerous seas, 
+老K纸牌纸牌游戏可以让你度过好几个小时的欢乐时光。
 
-explore lot of challenging and addictive jungle worlds and lands and defeat all cruel enemies and bosses. 
+Email:ju099888@gmail.com
 
-Email:wangju098@gmail.com
-
-Telephone Number:+134 1887 4413
+Telephone Number:+131 1687 4413
